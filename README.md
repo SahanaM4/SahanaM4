@@ -1,3 +1,3 @@
-Namaste...I am sahana mogeroy
+Namaste...I am sahana mogeroy.
 Currently I am a student in Surana college...
-I aspire to learn more about on the core computer concepts like cyber security web development etc. 
+I aspire to learn more, on the core concepts computer science like web development, cyber security  etc. 
